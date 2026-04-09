@@ -69,7 +69,7 @@
 ## 📫 Connect With Me  
 
 - 📧 piyush.pandey25@gmail.com  
-- 💼 LinkedIn: https://linkedin.com/in/YOUR-LINK  
+- 💼 LinkedIn: https://www.linkedin.com/in/piyush-pandey-8b075457 
 
 ---
 
